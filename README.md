@@ -21,7 +21,7 @@ I have not so much idea:
 - Optimised for all PC(PC with Nvidia GeForce GT 520 can have 60 fps or higher)
 
 # Where I can download this:
-In next changing i will drop remade version #1-0-2a but if you want to test this version just write me on Instagram(@e7deran) with text "I want your game"(because my bot can in this side send a link for dowloading)
+In next changing i will drop remaded version #1-0-2a but if you want to test this version just write me on Instagram(@e7deran) with text "I want your game"(because my bot can in this side send a link for dowloading)
 
 Well thanks for reading this and see you. Bye)
 
